@@ -1,1 +1,1 @@
-Please remember to keep your OB2 client updated. Updates usually fix bugs, add features and improve the performance.
+Anuncie aqui ENTRE EM CONTATO
